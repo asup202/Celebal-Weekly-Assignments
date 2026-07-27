@@ -1,1 +1,1 @@
-Week 5 project added.
+Week 6 project added.
